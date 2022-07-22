@@ -5,9 +5,6 @@ no bother at all, actually it's the first time that I am grateful to my small ey
 ## White and Black Socks
 Normally i think people who wear black socks are rude, and those who wear white are gentle. But what about wearing white to black, emmm... I think they are lousy :fearful:.
 
-## 臭狗
-我有一门课，助教的微信名叫“臭狗”，听起来很有意思...
-
 ## 家庭法院
 这天，小明和小红相亲：
 
