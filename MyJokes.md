@@ -2,9 +2,6 @@
 Today I ride bike from subway station to my workplace, there are so many catkins in air, which makes lots of riders hard to keep eyes open...while i feel so good and 
 no bother at all, actually it's the first time that I am grateful to my small eyes :stuck_out_tongue_closed_eyes:.
 
-## White and Black Socks
-Normally i think people who wear black socks are rude, and those who wear white are gentle. But what about wearing white to black, emmm... I think they are lousy :fearful:.
-
 ## 家庭法院
 这天，小明和小红相亲：
 
